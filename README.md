@@ -12,4 +12,7 @@ Meu nome e Eduarda
 
 
 
-![](https://tenor.com/pt-BR/view/elmo-stare-sesame-street-rocco-death-stare-gif-24438342)
+![](https://media1.tenor.com/m/DC7Wfck9t1oAAAAd/elmo-stare.gif)
+
+
+
